@@ -1,4 +1,3 @@
-
 abbo
 abo
 abortion
@@ -7,16 +6,12 @@ anal
 analannie
 analsex
 angie
-angry
 anus
 arab
 arabs
 areola
 argie
 aroused
-arse
-arsehole
-ass
 assassin
 assassinate
 assassination
@@ -25,7 +20,6 @@ assbagger
 assblaster
 assclown
 asscowboy
-asses
 assfuck
 assfucker
 asshat
@@ -68,13 +62,10 @@ beatyourmeat
 beaver
 bestial
 bestiality
-bi
 biatch
 bicurious
 bigass
 bigbastard
-bisexual
-bi-sexual
 bitch
 bitcher
 bitches
@@ -102,7 +93,6 @@ boom
 boong
 boonga
 boonie
-booty
 bootycall
 brea5t
 breast
@@ -147,8 +137,6 @@ chinamen
 chinese
 chink
 chinky
-choad
-chode
 clamdigger
 clamdiver
 clit
@@ -228,9 +216,6 @@ dickman
 dickwad
 dickweed
 diddle
-die
-died
-dies
 dike
 dildo
 dingleberry
@@ -268,10 +253,6 @@ fagging
 faggot
 fagot
 fannyfucker
-fart
-farted 
-farting 
-farty 
 fatass
 fatfuck
 fatfucker
@@ -350,7 +331,6 @@ fuuck
 gangbang
 gangbanged 
 gatorbait
-gay
 gaymuthafuckinwhore
 gaysex 
 genital
@@ -387,7 +367,6 @@ hitlerism
 hitlerist
 hiv
 holestuffer
-homicide
 homo
 homobangers
 homosexual
@@ -451,11 +430,6 @@ kanake
 kid
 kigger
 kike
-kill
-killed
-killer
-killing
-kills
 kink
 kinky
 kissass
@@ -485,11 +459,6 @@ kyke
 lactate
 laid
 lapdance
-lesbain
-lesbayn
-lesbian
-lesbin
-lesbo
 lez
 lezbe
 lezbefriends
@@ -539,7 +508,6 @@ minority
 mockey
 mockie
 mocky
-mofo
 moky
 moles
 molest
@@ -575,10 +543,6 @@ muncher
 munt
 murder
 murderer
-muslim
-naked
-narcotic
-nasty
 nastybitch
 nastyho
 nastyslut
@@ -680,7 +644,6 @@ pickaninny
 piker
 pikey
 piky
-pimp
 pimped
 pimper
 pimpjuic
@@ -738,8 +701,6 @@ pussypounder
 pusy
 quashie
 queef
-queer
-quickie
 quim
 ra8s
 raghead
@@ -892,7 +853,6 @@ threesome
 threeway
 timbernigger
 tinkle
-tit
 titbitnipply
 titfuck
 titfucker
@@ -941,7 +901,6 @@ wank
 wanker
 wanking
 welcher
-welfare
 wetback
 wetspot
 whigger
@@ -949,7 +908,6 @@ whiskey
 whiskeydick
 whiskydick
 whitenigger
-whites
 whitetrash
 whitey
 whop
