@@ -427,7 +427,6 @@ kaffir
 kaffre
 kafir
 kanake
-kid
 kigger
 kike
 kink
